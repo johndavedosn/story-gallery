@@ -1,0 +1,31 @@
+baseURL = 'https://example.org/'
+theme = ["LoveIt"]
+title = "Ali moumen's writing gallery"
+languageCode = "en"
+languageName = "English"
+enableEmoji = true
+
+[params]
+
+    title = "Ali's writing gallery"
+    description = "This is where I write my stories"
+    images = ["/images/me.jpg"]
+    [params.home.profile]
+        enable = true
+        title = "Ali's writing gallery"
+        subtitle = "This is where I publish my stories!"
+        typeit = true
+        avatarURL = "/images/me.jpg"
+        social = true
+    [params.author]
+        name = "Mohammed Ali Moumen"
+        email = "moumenisbest@gmail.com"
+        link = "https://ali-moumen.tech"
+    [params.social]
+        GitHub = "johndavedosn"
+    [params.header]
+        [params.header.title]
+            name = "Ali moumen"
+    [params.app]
+            svgFavicon = "/favicon.svg"
+

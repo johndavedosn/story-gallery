@@ -1,0 +1,20 @@
+<rss xmlns:atom="http://www.w3.org/2005/Atom" version="2.0">
+    <channel>
+        <title>All Posts - Ali moumen&#39;s writing gallery</title>
+        <link>http://localhost:1313/posts/</link>
+        <description>All Posts | Ali moumen&#39;s writing gallery</description>
+        <generator>Hugo -- gohugo.io</generator><language>en</language><managingEditor>moumenisbest@gmail.com (Mohammed Ali Moumen)</managingEditor>
+            <webMaster>moumenisbest@gmail.com (Mohammed Ali Moumen)</webMaster><lastBuildDate>Sat, 16 May 2026 01:04:48 &#43;0100</lastBuildDate><atom:link href="http://localhost:1313/posts/" rel="self" type="application/rss+xml" /><item>
+    <title>I AM THE FIRE - Part 1 -   &#34;Imperfect Paradise&#34;</title>
+    <link>http://localhost:1313/posts/first_post/</link>
+    <pubDate>Sat, 16 May 2026 01:04:48 &#43;0100</pubDate>
+    <author>moumenisbest@gmail.com (Mohammed Ali Moumen)</author>
+    <guid>http://localhost:1313/posts/first_post/</guid>
+    <description><![CDATA[<div class="featured-image">
+                <img src="/images/covers/cover.png" referrerpolicy="no-referrer">
+            </div><p><em>What do you desire?</em></p>
+<p>They say all of humanity’s sins are the fault of the Devil,  yet nobody blames me when their girlfriend cheats on them or when their boss takes credit for their work. This is proof that nothing is my fault,  all I did was rebel against Father and that is my only damn fault.</p>
+<p>When the fire of Hell tears through your skin,  bones and flesh and you scream for the sweet relief of death that will never come,  you cannot blame me for it.  You were the one who hurt yourself and the ones around you,  my only job is to make you truly feel the weight of your sins.  The very sins you committed on Earth thinking that there was no punishment and that you had to do what you had to do to survive.</p>]]></description>
+</item>
+</channel>
+</rss>
