@@ -26,6 +26,8 @@ enableEmoji = true
     [params.header]
         [params.header.title]
             name = "Ali moumen"
+    [params.footer]
+        custom = "Domain gifted by the great <a href=https://ditherdude.dev/>DitherDude!</a>"
     [params.app]
             svgFavicon = "/favicon.svg"
 
