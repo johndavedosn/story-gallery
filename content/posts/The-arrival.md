@@ -146,3 +146,190 @@ Mr. Albert, then, quickly tapped each of the golems, and each golem he taps snap
 “Dad…What was that?” I asked, my voice barely above a whisper.
 
 “I’ll explain to you when we’re home, it’s lunchtime,” He moved towards the shop door, and we followed him in utter shock.
+
+### **Luke.**
+
+*Knock knock..*
+
+“Get in,” I waved my hand up from my paper, gesturing to whoever was at the door.
+
+“Sir, the daily report from Outpost 8 is in, Do you\~” 
+
+“Just put it on my office,” I cut the Vindicator off, “I’ll check it later,”
+
+“But sir, you should really see it” He held the paper tighter, sweating.
+
+I put down my pen and looked at him, “Can’t you see that I’m busy now? I said put it on the damn desk.”
+
+“O-Okay,” He carefully put the file on my desk, then practically bolted out the door.
+
+I finished writing my letter roughly after twelve minutes, then I picked up the report that the Vindicator brought from Outpost 8\. “Daily status report.” The white text on the file, and then under it in smaller text, “From Outpost 8, Pillager Military District (PMD) 53 to Commander Luke Blount.”  
+
+I quickly skimmed through it. Nothing seemed out of the ordinary, except maybe the rising shortage in food which I’ve been trying to deal with, and failing, for the last six months or so. Outpost 8 are really bad at managing their food supplies. 
+
+I put it down, and left my office for lunch break. The mail hall was empty except for me and three other Evolkers, whom I had lunch with. Lieutenants Micah and Colm.
+
+“Hey, Luke,” Micah tapped my back while I was pulling a chair to sit down.
+
+“Greetings, Micah,”
+
+“So, how are things?”
+
+“Good, I suppose, I am breathing for what it’s worth,” I pulled my lunch and set it on the table.
+
+“Aren’t we all?” He set his lunch on the table too, “Still dealing with that food thing with the 8th?”
+
+“Yeah, these suckers can’t keep a single barrel of wheat to save their damn life,” I laughed bitterly.
+
+“Have they done any raid in the last month or so?”
+
+“Bloody hell no. The sergeants there keep telling me that ‘they’re planning’. I have tried everything to get them to move,” 
+
+“Well, that’s some crap,” He started eating, and so did I.
+
+All this while, Colm was deep into some papers. His lunch was sitting on the table, getting cold, and he was just nervously staring at files and humming.  
+“Colm;” I pointed my spoon at him, “What’s the matter with you?” 
+
+“Got an outpost that suddenly went up in flames overnight, just checking the report now” He didn’t lift his head from the file.
+
+“Huh, wouldn’t it just be lightning or something? I said in a confused voice.
+
+“No. The night watch guy says there was no storm or anything. He says he just went to the back to grab his crossbow and the entire thing was burning.”
+
+“Damn, need some help with that?” Micah put down his fork.
+
+“Oh, no. We’ve got some supplies left from the Third Sector Raid, I’ll just use them.”
+
+“Alright,” Micah and I said in unison.
+
+I finished up lunch, then climbed up to my office. I picked up the letter I was writing to Outpost 11 about holding up all raids until further notice, and put it in the outgoing mailbox by the office door. It’ll arrive at the outpost in about two weeks, depending on how busy the communication lieutenant is.
+
+I sat down on my chair, and lit a cigarette, then I kept staring at the window of my office, which was peeking at the lush dark oak forest outside. The library by the window side caught my eye; so I got up and got a book from it to pass the time.
+
+“*Chalybs calidus”* The title was, “A Warrior’s Delight”, it said in smaller text under it.
+
+I haven’t read the Chalybs in a good while, and I probably should, but I got too busy with the whole Outpost 8 thing. I haven’t even been to our Mansion’s church in a week. At this point, I’m too ashamed of myself to meet the priest there.
+
+I open up the book to a random page, and my hand pulls out one the bulkier chapter-start pages. The chapter title read, “Lyriana”, the first verse was: 
+
+*“A man’s delight shall stem from his way with his blade, for from its pleasure comes his pleasure, and from its disease comes his disease.” Lyriana 1:1.*
+
+I read for a somewhat long time, skipping some sections because they felt too boring. Until I reached verse 41 of the sixth chapter, which caught my attention: 
+
+*“The blood which men must fight by and for, it is the purest thing to ever be. Through nothing but it shall be everything else, and no power can ever defeat it but the Arriver \- He Who shall be at the end, and no blade nor arrow shall put Him to a finale. Warriors will bend the knee before His very self, and destruction and creation shall be the swords that His hands will wield.”* 
+
+That scared the ever living crap out of me, what power can be so strong like that? I don’t think the book is being very literal there. It seems to be really heavily metaphorical. An hour passed by, and the bell which signifies the end of today’s work shift had rang. So, I put the book back on the bookshelf, then locked my office and headed up to my quarters.
+
+I opened the door to my bedroom, and turned the lights on, “I’m here,” I said, out of pure habit.
+
+My two daughters, Alice and Adelaide immediately ran to me and hugged me at the door. I hugged them and kissed each of them before letting them go to greet my wife.
+
+Eleanor greeted me with her tired face, “Greetings, honey,  how was your day?”
+
+“Survivable,  what about you?”
+
+“Somewhat the same, Adelaide poured flour in the oven again,” She giggled slightly, staring at Adelaide, who was now swinging her on a chair near the table.
+
+ “But mom, I wanted to make bread,”
+
+“Not like that, sweetie,” Eleanor turned back to the kitchen, “You’re probably hungry, let me get dinner,”
+
+I sat on the couch while waiting for dinner. I watched Adelaide and Alice play with their little wooden dolls, and I probably slept for a short period of time while watching them. Eleanor shook me awake when she had put dinner on the table.
+
+I picked up a boiled potato from the plate, and ate it, “Mmm, this is tasty.”
+
+“Really?” Eleanor turned to me, curiously, “I had very little time to cook it,”
+
+“Well, from now on, please start rushing all of your cooking,” I joked, picking up another piece of potato.
+
+Eleanor smiled, and the girls laughed audibly at my joke. Midway through the meal, Eleanor asked; “I heard from Ms. Bennet next door about her husband having something to do with a burning outpost?”
+
+“Yeah, one of Colm’s outposts went up in flames overnight, apparently. Not sure how.”
+
+“Not even thunder?” She raised an eyebrow.
+
+“No,” 
+
+The rest of dinner was in pure silence, then I washed my hands, and went to sleep because I was extremely tired. I didn’t even remember Eleanor coming to the bedroom to sleep too, I just remember waking up and seeing her on my side.
+
+That night, I did not have a very good sleep. Nightmares hunted me like a hungry lion. There was no apparent meaning to my dreams too, just random horrifying scenes of explosions and wildfires.
+
+The next day, I woke up earlier than usual. I left Eleanor and the kids sleeping, and quietly left my room, going down to the base floor of the Mansion. 
+
+“Sir, you are here right on time,” The leading Vindicator said, putting his axe behind his back, “I just got word that our fleets that our raid against the Riverside village has succeeded.”
+
+“Perfect,” I put on my robe, and followed him out into the wild.
+
+Outside the Mansion, there was a massive fleet of around nineteen pillagers, five Vindicators, and two Ravagers saddled up and ready to go. I got on one of them, and the leading Vindicator took the other one, then he led the way outside of the forest.
+
+We rode for miles, until we reached Lake Victoria, which we looped around to get to the plains. After that, we rode for another few miles East, until the signs of a village started to emerge from the fog.
+
+The buildings and houses were still up, as we were early, but the cage wagons were already there carrying villagers and golems. 
+
+“Commander Luke, we’ve been waiting for you,” The Evolker there turned to me, smiling, “We’ve completely defeated the Riverside village, finally.”
+
+“Well, it’s about time, Thomas. It’s been five bloody months of constant raids,” 
+
+“I know, sir, but now they’re down now and\~” He was cut off by a loud screaming sound coming from the hilltop.
+
+“You will never defeat us\! The Spirits will curse you for what you have done\!” The village clerk was held down by two pillagers, but he was kicking and thrashing in their arms while screaming about some spirits or whatever.
+
+“Silence\!” Thomas shouted at him, and gestured to the pillagers to move him.
+
+“Actually, no,” I raised my hands to stop the pillagers, “I want to talk to him,”
+
+They stopped, and I put my hands behind my hands, and walked towards him, “What makes you think we won’t defeat you, Old Mark?”
+
+“Because The Mighty Lords are on our side\!” He shouted back.
+
+“Huh, are they, now? I’d think that if they were, they would have helped you, wouldn’t they?”
+
+He didn’t respond, just kept thrashing and kicking. I waved for the pillagers to get him out of my face.
+
+“So, when will you loot this?” I tapped Thomas’ shoulder.
+
+“In a moment, sir”
+
+While waiting, I looked around the area. It was mostly flat plains, except for some mountains in the far North. “What is up with that\~” Something pushed me down before I could complete my sentence.
+
+I turn to see, and it’s a villager, holding a wooden sword, with a rather furious expression on his face. He tried to run at me, but luckily I was wearing my protection robe. A Vex came out of the ground and head-butted them straight into the grass.
+
+A pillager quickly grabbed him by his shoulder, and yanked him up towards the cage wagon.
+
+“Ugh,” I got up, and turned back to Thomas, “As I was saying before I was so rudely interrupted by this minion, what is up with that hill?”
+
+The hill I pointed at had a section of it just gone. A square-shaped void that just didn’t have any dirt or rock in it. Nature doesn’t usually do that. “Uh, I’m not sure, probably just some excavation or mining thing by the village miners.”
+
+That did make sense, but miners usually don’t break squared sections of hills. I simply stopped thinking about it because I do not want to get caught up in random stuff.
+
+The pillagers started looting, and they weren’t done until sunrise, which is when we gathered up our stuff and headed back to the Mansion. The loot and cage wagons diverged to Outpost 21, which is where I dispatched them.
+
+Miles of riding later, we were at the Mansion, which is where I was suddenly told that Colm had called an eùergency meeting in two minutes regarding his burning outpost. I sighed of fatigue, and climbed up to the meeting room.
+
+There were about five Evolkers already there including Thomas and Micah, Colm was sitting at the head of the table, clutching his stupid files. When the room finally filled up, he got up and started talking.
+
+“First off, I’m sorry for the bad timing, I know that some of you have been pulled out of your duties for this, but it is of grave importance,” 
+
+I adjusted my sitting position to look at him, and he continued, “Some of you have already been informed of this, but I’ll explain for good measure. The night before yesterday, Outpost 5 which is under my command as part of the 51st PMD reportedly went up in flames. The outpost’s storage room, prisoner cells, and bottom floor have been completely erased by the flames.”
+
+He raised his head up from the files, “The person tasked with night watch said that he did not see anything out of the ordinary, and there’s no apparent reason for this burning. Anyone got ideas?”
+
+“Are there any rival villages close to Outpost 5?” Thomas asked, raising an eyebrow.
+
+“No, all rival villages have been raided and neutralized, and the nearest village is the on the other side of Lake Demaro, which is about two hundred miles away,”
+
+“Would it be possible that a rival villager had sneaked by and thought to maybe take revenge?” I suggested, crossing my hands.
+
+He thought for a bit, “Perhaps, but how would they get past the spotters and the night watch?”
+
+A guy from the far end of the table replied, “Cammoflage, studying soldier schedules, multiple ways.”
+
+We went back and forth like that for about an hour, then Micah suggested that we could send some patrols out into the fields around Outpost 5, which I voted for because it was a good idea.
+
+“Outpost 12 of the 53rd PMD is near the area in question, I can have them send spotters South to check for anything of the ordinary,” I said, shifting in my chair.
+
+“And there’s an outpost of the 54th East of the area, they can help too,” Thomas followed up.
+
+“Well, in that case, anyone here who commands any outposts near the general area of Outpost 5 of the 51st PMD, please be sure to provide help,” Colm concluded, standing up from his chair.
+
+We all stood up after him, and left the meeting room to go to our corresponding offices.
