@@ -1,7 +1,7 @@
 +++
 date = '2026-05-16T16:28:47+01:00'
 draft = false
-title = 'I AM THE FIRE - P2 - "Origins of Malice"'
+title = 'I AM THE FIRE - Part 2 - "Origins of Malice"'
 
 featuredImage = "/images/covers/cover-iatf.png"
 featuredImagePreview = "/images/covers/iatf-p2-cover-prev.png"
